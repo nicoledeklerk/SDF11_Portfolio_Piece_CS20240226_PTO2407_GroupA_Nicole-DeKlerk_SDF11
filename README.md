@@ -22,3 +22,7 @@ Project Links:
 
 https://www.loom.com/share/8e617abf83624a8ebe0ec8cedf150201?sid=63bf55a7-7e4f-4610-bbe4-e7c6b0415313
 https://www.loom.com/share/46d3691539a74da3995c903850770841?sid=5429579c-1b77-4bb2-b4fa-cd18d0b84e75
+
+Slideshow Presentation Link:
+
+https://www.canva.com/design/DAGR8diLORQ/NuLX6aqJDmuyB6hwA-zgmA/view?utm_content=DAGR8diLORQ&utm_campaign=designshare&utm_medium=link&utm_source=editor
